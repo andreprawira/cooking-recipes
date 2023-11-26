@@ -14,3 +14,5 @@ Cooking methods:
 6. At minute 25 add all the mushrooms
 7. Minute 30 turn off fire
 8. Eat
+
+![82eaac0f-0eff-4028-8f96-354a088547e0](https://github.com/andreprawira/cooking-recipes/assets/42351199/33d65d8f-a154-4f1b-9be9-1234de287693)
