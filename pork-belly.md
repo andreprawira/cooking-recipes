@@ -3,7 +3,7 @@
 Ingredients:
 1. 4 lbs pork belly
 2. 1 box of mushrooms from sams club
-3. bumbu rendang, salt, pepper, garlic, yellow onion, bawang merah, ginger
+3. bumbu rendang, salt, pepper, garlic, yellow onion, bawang merah, ginger, 1 or 2 spoon of laoganma pickled chili 
 
 Cooking methods:
 1. Cut pork belly to bite size n bake em for 1 hour at 275 F (no need to put any ingredients just bake the pig)
@@ -14,3 +14,4 @@ Cooking methods:
 6. At minute 25 add all the mushrooms
 7. Minute 30 turn off fire
 8. Eat
+
